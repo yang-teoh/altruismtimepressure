@@ -1,3 +1,0 @@
-# altruismtimepressure
-
-Manuscript Code Available
